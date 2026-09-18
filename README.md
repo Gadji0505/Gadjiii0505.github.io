@@ -1,1 +1,0 @@
-# Gadjiii0505.github.io
